@@ -1,4 +1,4 @@
-**Young women’s role in preventing sex trafficking**
+**Young Women’s Role in Preventing Sex Trafficking**
 
 I believe that young women are a strong and under utilized force in the fight against sex trafficking. Sexual slavery largely affects adolescent girls and young adult women, so we then have a distinctive perspective and special ability to combat sex trafficking. Young women are the key to stopping human trafficking because, if trained correctly, we will be able to spot peers who are victims, reach out to victims on a more personal level than adults or men can, and relate to the struggle of victims in a deeper way. Exploring different ways to address sex trafficking is a great way for us to explore the options we have to stop sex trafficking.
 
